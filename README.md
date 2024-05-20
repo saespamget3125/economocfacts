@@ -1,1 +1,1 @@
-The Peace of Utrecht, signed in 1713, marked the end of the War of Spanish Succession and reshaped the global balance of power, leading to territorial realignments and trade agreements.
+The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
