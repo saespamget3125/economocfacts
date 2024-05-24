@@ -1,1 +1,1 @@
-The Atlantic slave trade reached its peak in the 18th century, with millions of Africans forcibly transported to the Americas to work on plantations and in mines, contributing to economic growth in European colonies.
+The rise of capitalism in the 17th century was accompanied by the emergence of modern banking practices, including the issuance of paper money, letters of credit, and banking services.
