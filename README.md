@@ -1,1 +1,1 @@
-The rise of capitalism in the 17th century was accompanied by the emergence of modern banking practices, including the issuance of paper money, letters of credit, and banking services.
+The British East India Company (EIC), chartered in 1600, was granted a monopoly on English trade with Asia and played a key role in British imperialism and commerce in the 17th century.
