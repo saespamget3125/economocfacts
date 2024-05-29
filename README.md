@@ -1,1 +1,1 @@
-The British East India Company (EIC), chartered in 1600, was granted a monopoly on English trade with Asia and played a key role in British imperialism and commerce in the 17th century.
+The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
