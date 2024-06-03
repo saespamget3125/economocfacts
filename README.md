@@ -1,1 +1,1 @@
-The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
+The rise of cottage industries and early forms of industrialization in Europe during the 17th century laid the groundwork for the Industrial Revolution of the 18th and 19th centuries.
