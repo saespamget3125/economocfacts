@@ -1,1 +1,1 @@
-The rise of cottage industries and early forms of industrialization in Europe during the 17th century laid the groundwork for the Industrial Revolution of the 18th and 19th centuries.
+The economic theories of classical economics, espoused by thinkers like Adam Smith and David Ricardo, laid the foundation for modern economic thought and policy, emphasizing free markets, competition, and self-regulation.
