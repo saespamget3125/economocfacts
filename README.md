@@ -1,1 +1,1 @@
-The economic theories of classical economics, espoused by thinkers like Adam Smith and David Ricardo, laid the foundation for modern economic thought and policy, emphasizing free markets, competition, and self-regulation.
+The Treaty of Paris, signed in 1763, marked the end of the Seven Years' War and reshaped the global balance of power, leading to territorial realignments and trade agreements.
