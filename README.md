@@ -1,1 +1,1 @@
-The rise of joint-stock companies and stock exchanges in the 17th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
+The Gold Rushes of the 19th century, including the California Gold Rush of 1848-1855 and the Australian Gold Rush of the 1850s, led to massive migrations, economic booms, and urban growth in affected regions.
