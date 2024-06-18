@@ -1,1 +1,1 @@
-The practice of mercantilist policies, such as tariffs, trade monopolies, and subsidies, aimed to protect domestic industries and promote exports while limiting imports.
+The Dutch East India Company (VOC), founded in 1602, was one of the world's first multinational corporations and played a central role in global trade, particularly in the spice trade with Asia.
