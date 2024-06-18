@@ -1,1 +1,1 @@
-The Dutch East India Company (VOC), founded in 1602, was one of the world's first multinational corporations and played a central role in global trade, particularly in the spice trade with Asia.
+The rise of laissez-faire capitalism in the 19th century advocated for limited government intervention in the economy, free markets, and individual liberty, shaping economic policy and thought.
