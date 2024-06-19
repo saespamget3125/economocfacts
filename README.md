@@ -1,1 +1,1 @@
-The rise of laissez-faire capitalism in the 19th century advocated for limited government intervention in the economy, free markets, and individual liberty, shaping economic policy and thought.
+Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
