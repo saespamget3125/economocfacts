@@ -1,1 +1,1 @@
-The practice of mercantilist policies, such as tariffs, trade monopolies, and subsidies, aimed to protect domestic industries and promote exports while limiting imports.
+The expansion of international trade in the 19th century was facilitated by innovations in transportation, including steamships, railways, and canals, which reduced costs and increased efficiency.
