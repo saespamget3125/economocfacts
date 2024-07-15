@@ -1,1 +1,1 @@
-The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
+The Bank of England, founded in 1694, became a central institution in the British economy, issuing currency, managing government debt, and facilitating commercial banking operations.
