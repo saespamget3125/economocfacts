@@ -1,1 +1,1 @@
-The Bank of England, founded in 1694, became a central institution in the British economy, issuing currency, managing government debt, and facilitating commercial banking operations.
+The Gold Rushes of the 19th century, including the California Gold Rush of 1848-1855 and the Australian Gold Rush of the 1850s, led to massive migrations, economic booms, and urban growth in affected regions.
