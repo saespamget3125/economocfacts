@@ -1,1 +1,1 @@
-The Gold Rushes of the 19th century, including the California Gold Rush of 1848-1855 and the Australian Gold Rush of the 1850s, led to massive migrations, economic booms, and urban growth in affected regions.
+The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
