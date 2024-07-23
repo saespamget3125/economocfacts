@@ -1,1 +1,1 @@
-The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
+The Treaty of Westphalia, signed in 1648, marked the end of the Thirty Years' War in Europe and established the principle of state sovereignty, laying the groundwork for modern international relations.
