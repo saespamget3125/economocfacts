@@ -1,1 +1,1 @@
-The enclosure movement in England during the 17th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
+The rise of joint-stock companies and stock exchanges in the 18th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
